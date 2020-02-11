@@ -1,0 +1,1 @@
+[The Sciences of the Artificial](https://www.amazon.com/Sciences-Artificial-3rd-Herbert-Simon/dp/0262691914/ref=sr_1_1?crid=UOQL89RLSDDB&keywords=the+sciences+of+the+artificial&qid=1581411413&sprefix=the+sciences+of+the%2Caps%2C250&sr=8-1)
